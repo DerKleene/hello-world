@@ -2,6 +2,6 @@
 
 Dies ist das Tutorial :)
 
-Ich komme aud Deutschland.
+Ich komme aus Deutschland.
 Aus dem wunderschönen hohen Norden (Niedersachsen)
 
